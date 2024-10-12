@@ -17,3 +17,18 @@ Vivi La Vida-ColdPlay
 
 Telescope-Timlegend&Transviolet
 There For You-Martin Garrix&Troye Sivan
+Easy Come-Antoine Chambe(2019)
+Lost Control-Tyron Hapi&Bianca(2016)
+despair-LookedatHerFore(2017)
+Visions-Acreix(2018)
+Sweet but Psycho-Ava Max(2019)
+Remember Our Summer-FrogMonster(2019)
+Creep-Gamper And Dadoni(2022)
+Save Me-DEAMN(2019)
+Nevada-Vicetone
+See It Again-Loud Luxury(2016)
+Sold Out-Hawk Nelson&Jonathan Steingard(2015)
+The La La La-Gamper&DNKR&Dadoni
+Highscore-Panda Eyes&Terminite
+Infinity-James Young
+Outside-Calvin Harris&Ellie Goulding(2014)
