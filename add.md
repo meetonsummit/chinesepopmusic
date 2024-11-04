@@ -28,7 +28,10 @@ Save Me-DEAMN(2019)
 Nevada-Vicetone
 See It Again-Loud Luxury(2016)
 Sold Out-Hawk Nelson&Jonathan Steingard(2015)
-The La La La-Gamper&DNKR&Dadoni
 Highscore-Panda Eyes&Terminite
 Infinity-James Young
 Outside-Calvin Harris&Ellie Goulding(2014)
+Everybody-Ingrid Michaels
+Sea Of Problems-Glichery
+Where Is Your Love-J Lisk
+Frontier-Doctor Vox(2015)
