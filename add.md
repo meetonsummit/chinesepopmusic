@@ -35,3 +35,5 @@ Everybody-Ingrid Michaels
 Sea Of Problems-Glichery
 Where Is Your Love-J Lisk
 Frontier-Doctor Vox(2015)
+In The End-Tommee Profitt&Fleurie&Jung Youth
+Gimme! Gimme! Gimme!-ABBA
