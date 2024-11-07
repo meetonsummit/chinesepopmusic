@@ -11,7 +11,6 @@ Circles-Post Malone
 Past Lives-Jasper&Martin Arteta
 Past Lives-Martin Arteta&creamy
 Locked Away-Maddie Wilson&OutaMatic&Madilyn Paige
-Waiting for Love-Avicii
 
 Vivi La Vida-ColdPlay
 
