@@ -36,3 +36,5 @@ Where Is Your Love-J Lisk
 Frontier-Doctor Vox(2015)
 In The End-Tommee Profitt&Fleurie&Jung Youth
 Gimme! Gimme! Gimme!-ABBA
+Wrap Me In Plastic-CHROMANCE&MarcusLayton
+Wake-Simply Worship
