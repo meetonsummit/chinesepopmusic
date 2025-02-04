@@ -38,3 +38,7 @@ In The End-Tommee Profitt&Fleurie&Jung Youth
 Gimme! Gimme! Gimme!-ABBA
 Wrap Me In Plastic-CHROMANCE&MarcusLayton
 Wake-Simply Worship
+Paradise-Dermot Kennedy&MEDUZA
+Run Free-DeepChills&IVIE
+No Matter What-Bougenvilla&Albert Neve&David Puentez
+Bleeding Love-NiCo
